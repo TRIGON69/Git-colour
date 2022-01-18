@@ -4,4 +4,4 @@ Colour may be the most important tool artists can use to express themselves, sha
 
 When giving advice to artists he wrote, “When you go out to paint, try to forget what objects you have before you, a tree, a house, a field or whatever. Merely think here is a little square of blue, here an oblong of pink, here a streak of yellow, and paint it just as it looks to you, the exact colour and shape.”
 
-One of Monet's favorite colours was pink.
+One of Monet's favorite colours was light-blue.
